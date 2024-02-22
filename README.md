@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Java, C, C++**
 
-- 📫 How to reach me **esmaasyldrm@gmail.com**
+- ⚡ I create bugs since: 2023
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
