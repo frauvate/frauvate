@@ -27,4 +27,4 @@ code runs in my veins like vervain in mystic falls ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚�
 - 🧲 advanced ml & model ensembling
 
 ### contact me
-📫 (Mail)[mailto:esmaasyldrm@gmail.com] • 💼 LinkedIn • 💀 Portfolio • 📸 Instagram
+📫 [Mail](mailto:esmaasyldrm@gmail.com) • 💼 LinkedIn • 💀 Portfolio • 📸 Instagram
