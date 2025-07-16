@@ -10,8 +10,8 @@
           ░           ░  ░   ░           ░        ░  ░           ░  ░
                                         ░                            
 ```
+🦇 ℋalf human, ℋalf vampire 🦇
 
-                  🦇 ℋalf human, ℋalf vampire 🦇
 ### who am i?
 🖤 i'm esma, a software engineering student from turkey
 code runs in my veins like vervain in mystic falls ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊
