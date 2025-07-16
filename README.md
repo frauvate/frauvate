@@ -14,6 +14,7 @@
 
 ### who am i?
 🖤 i'm esma, a software engineering student from turkey
+
 code runs in my veins like vervain in mystic falls ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊
 
 ### the artifacts i wield
@@ -29,4 +30,4 @@ code runs in my veins like vervain in mystic falls ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚�
 - 🧲 advanced ml & model ensembling
 
 ### contact me
-📫 [Mail](mailto:esmaasyldrm@gmail.com) • 💼 LinkedIn • 💀 Portfolio • 📸 Instagram
+📫 [Mail](mailto:esmaasyldrm@gmail.com) • 💼 [LinkedIn](https://www.linkedin.com/in/esma-yyildirim/) • 💀 [Most Recent Project](https://moodmusic-yildirim.streamlit.app/) • 📸 [Instagram](https://www.instagram.com/esma.yyldrm/)
