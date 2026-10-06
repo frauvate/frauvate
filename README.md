@@ -36,7 +36,5 @@ code runs in my veins like vervain in mystic falls ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚�
 
 ### support me
 [buy me a coffee | i prefer 0Rh-](buymeacoffee.com/frauvate)
-
-![snake animation](https://github.com/frauvate/frauvate/blob/output/github-contribution-grid-snake2.svg)
 ---
 raedme inspired by the masterpiece The Vampire Diaries🧛‍♀️
